@@ -1,4 +1,4 @@
-👋 Hi, I’m Kris K. 👋
+👋 Hi, I’m Kris K. 
 
 🤘 I'm an entrepreneur at heart, in love with working on impactful projects and good people.
 
